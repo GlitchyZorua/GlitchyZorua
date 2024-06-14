@@ -21,7 +21,11 @@ Revolt: https://rvlt.gg/DRPG7arA
 
 Discord: https://discord.com/invite/Ms4NFJb
 
-Fuck you Elon Musk.
+---------
+
+Firefox avacote. Used it since I was just a little kid.
+
+
 
 [![](http://internetometer.com/image/50041.png)](http://internetometer.com/give/50041)
 
