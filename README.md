@@ -10,6 +10,7 @@ Be decentralized.
 
 
 Email: RetroJBOT@hotmail.com
+
 Mastodon: https://wetdry.world/@GlitchyZorua
 
 
