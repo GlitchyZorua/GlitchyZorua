@@ -13,6 +13,12 @@ Email: RetroJBOT@hotmail.com
 
 Mastodon: https://wetdry.world/@GlitchyZorua
 
+Matrix: https://matrix.to/#/%23RetroJSpace:matrix.org
+
+Revolt: https://rvlt.gg/DRPG7arA
+
+Discord: https://discord.com/invite/Ms4NFJb
+
 [![](http://internetometer.com/image/50041.png)](http://internetometer.com/give/50041)
 
 <!--
