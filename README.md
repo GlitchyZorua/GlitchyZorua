@@ -1,4 +1,14 @@
-## Hi there 👋
+## Welcome to my GitHub profile!
+
+Capable of so many things, 
+ditching shitty social media since 2023. 
+I would rather build a website.
+Be decentralized. 
+
+
+Email: RetroJBOT@hotmail.com
+Mastodon: https://wetdry.world/@GlitchyZorua
+
 
 <!--
 **GlitchyZorua/GlitchyZorua** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
