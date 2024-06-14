@@ -8,7 +8,6 @@ Build a website.
 
 Be decentralized. 
 
-
 Email: RetroJBOT@hotmail.com
 
 Mastodon: https://wetdry.world/@GlitchyZorua
