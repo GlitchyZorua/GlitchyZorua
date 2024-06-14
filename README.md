@@ -13,7 +13,7 @@ Email: RetroJBOT@hotmail.com
 
 Mastodon: https://wetdry.world/@GlitchyZorua
 
-
+[url=http://internetometer.com/give/50041][img]http://internetometer.com/image/50041.png[/img][/url]
 <!--
 **GlitchyZorua/GlitchyZorua** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
