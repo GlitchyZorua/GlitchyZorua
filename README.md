@@ -1,8 +1,11 @@
 ## Welcome to my GitHub profile!
 
 Capable of so many things, 
+
 ditching shitty social media since 2023. 
-I would rather build a website.
+
+Build a website.
+
 Be decentralized. 
 
 
