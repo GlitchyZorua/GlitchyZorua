@@ -23,7 +23,7 @@ Discord: https://discord.com/invite/Ms4NFJb
 
 ---------
 
-Firefox avacote. Used it since I was just a little kid. :)
+Firefox avacote. Used firefox since I was just a little kid. :)
 
 Privacy is a human right.
 
