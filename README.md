@@ -25,6 +25,9 @@ Discord: https://discord.com/invite/Ms4NFJb
 Website: https://retrojcities.neocities.org/
 
 GitHub Mirror: https://glitchyzorua.github.io/
+
+Scratch: https://scratch.mit.edu/users/GlitchyZorua/
+
 ---------
 
 Firefox avacote. Used firefox since I was just a little kid. :)
