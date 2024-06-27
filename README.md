@@ -40,6 +40,8 @@ Privacy is a human right.
 
 [![](http://internetometer.com/image/50041.png)](http://internetometer.com/give/50041)
 
+![literalhatreward](https://github.com/GlitchyZorua/GlitchyZorua/assets/54043124/ddef0a72-7100-45c8-9287-ad052bb180b9)
+
 <!--
 **GlitchyZorua/GlitchyZorua** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
