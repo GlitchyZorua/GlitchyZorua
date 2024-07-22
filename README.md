@@ -28,6 +28,8 @@ GitHub Mirror: https://glitchyzorua.github.io/
 
 Scratch: https://scratch.mit.edu/users/GlitchyZorua/
 
+osu!: https://osu.ppy.sh/users/35270913
+
 ---------
 
 Firefox avacote. Used firefox since I was just a little kid. :)
