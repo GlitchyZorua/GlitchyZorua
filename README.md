@@ -19,7 +19,6 @@ Matrix: https://matrix.to/#/%23RetroJSpace:matrix.org
 
 Revolt: https://rvlt.gg/DRPG7arA
 
-Discord: https://discord.com/invite/Ms4NFJb
 
 
 Website: https://retrojcities.neocities.org/
