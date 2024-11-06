@@ -19,7 +19,7 @@ Matrix: https://matrix.to/#/%23RetroJSpace:matrix.org
 
 Revolt: https://rvlt.gg/DRPG7arA
 
-
+Signal: https://signal.me/#eu/fsgmX9LQR5un-B0521Ii97D_G5nsYts7d93kv7puaLX4pP0oobxFxKmvQ1Htz0ko
 
 Website: https://retrojcities.neocities.org/
 
