@@ -11,7 +11,7 @@ Be decentralized.
 Contact Me: 
 
 
-Email: RetroJBOT@hotmail.com
+Email: retrojmail@protonmail.com
 
 Mastodon: https://wetdry.world/@GlitchyZorua
 
