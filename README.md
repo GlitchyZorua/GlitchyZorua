@@ -27,7 +27,9 @@ osu!: https://osu.ppy.sh/users/35270913
 
 ---------
 
-Firefox avacote. Used firefox since I was just a little kid. :)
+Firefox avacote. 
+
+Wants to ditch social media.
 
 Privacy is a human right.
 
